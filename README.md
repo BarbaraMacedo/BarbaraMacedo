@@ -1,4 +1,4 @@
-## Oii! Eu sou a Bárbara Macedo👋
+## Oii! Eu sou a Bárbara 
 
 <div align="center">
   <a href="https://github.com/BarbaraMacedo">
